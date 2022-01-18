@@ -6,6 +6,8 @@ Olá! Bem vindo ao meu livro de receitas. :wave:
 - Pavê
 - Torta de limão
 
+
+
 ### Strogonoff 
 
 - 3 peitos de frango cortados em cubos
@@ -21,3 +23,37 @@ Olá! Bem vindo ao meu livro de receitas. :wave:
 
 
 
+### Pavê
+
+- 1 lata de creme de leite
+- 1 lata de leite (mesma medida da lata de creme de leite)
+- 2 latas de leite condensado
+- 2 gemas
+- 2 colheres de maisena
+- 3 colheres de chocolate em pó ou achocolatado
+- biscoito maisena
+- leite para molhar os biscoitos
+- raspas de chocolate (opcional)
+- manteiga sem sal ou margarina, só para dar o ponto
+
+
+
+### Torta de limão
+
+##### Massa 
+
+- 200g de biscoito maisena
+- 150g de margarina 
+
+##### Recheio
+
+- 1 lata de leite condensado (395g)
+- 1 caixa de creme de leite (200g)
+- suco de 4 limões
+- raspas de 2 limões
+
+##### Cobertura
+
+- 3 ou 4 claras de ovo
+- 3 colheres (sopa) de açúcar
+- raspas de 2 limões para decorar
